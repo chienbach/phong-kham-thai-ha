@@ -1,6 +1,5 @@
 <p style="text-align:justify"><strong>Phong kham da khoa thai ha</strong>< là một trong những <a href="http://phongkhamphukhoathaiha.webflow.io/posts/phong-kham-da-khoa-uy-tin-tai-ha-noi">phòng khám đa khoa gần nhất</a>, uy tín tại Hà Nội. <strong>trung tâm y tế Thái Hà</strong> luôn không ngừng cải thiện về uy tín dịch vụ song cũng không hạn chế khỏi tin đồn ác ý, bôi nhọ của đối thủ cạnh tranh. Để giúp bạn đọc yên tâm hơn đối với <strong>chất lượng bệnh viện đa khoa Thái Hà</strong>, xin mời bạn theo dõi trong nội dung bài viết bài viết này.</p>
 
-<p style="text-align:center"><img alt="Chất lượng Phòng khám đa khoa Thái Hà" src="http://benhxahoi.xyz/media/images/phong-kham-da-khoa-thai-ha(1).jpg" style="border:none; clear:both; height:250px; margin:0px auto !important; max-width:100%; padding:0px; width:400px" /></p>
 
 <h2>tin cậy bệnh viện ĐA KHOA THÁI HÀ ĐƯỢC đánh giá CÁC TIÊU CHÍ SAU</h2>
 
